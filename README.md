@@ -4,8 +4,8 @@ Ishana ENT Clinic is an Ear-Nose-Throat (ENT) Clinic located in Gottigerre, Bang
 
 ## Contact Information
 
-- **Address:** Gottigerre, Bangalore
-- **Phone Number:** [Insert Phone Number]
+- **Address:** MAGNUS DIAGNOSTICS, ISHANA ENT CENTRE, Bannerghatta Rd, Gottigere, Bengaluru, Kothnur, Karnataka 560076
+- **Phone Number:** +91 94809 26833
 
 ## Clinic Timings
 
@@ -22,7 +22,7 @@ Ishana ENT Clinic is an Ear-Nose-Throat (ENT) Clinic located in Gottigerre, Bang
 
 Click on the map below to find directions to reach **Ishana ENT Clinic**.
 
-[Google Maps Link](https://www.google.com/maps)
+[Google Maps Link](https://tinyurl.com/3tx23smz)
 
 ---
 
