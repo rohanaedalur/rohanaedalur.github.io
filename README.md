@@ -13,7 +13,7 @@ Ishana ENT Clinic is an Ear-Nose-Throat (ENT) Clinic located in Gottigerre, Bang
 
 ## Services Provided
 
-- Vocal Cord Surgery
+- Vocal Cord Surgery  
 - Functional Endoscopic Sinus Surgery (FESS)
 - Thyroid Surgery
 - Ear Micro Surgery
